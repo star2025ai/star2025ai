@@ -1,7 +1,7 @@
 # 👋 Hi, I'm  Siyuan Cheng
 
-AI Automation Engineer & Digital Transformation Consultant  
-MBA @ Zhejiang University | Former Solution Manager @ China Mobile
+Project Manager | AI & Digital Transformation  
+MBA @ Zhejiang University 
 
 ---
 
